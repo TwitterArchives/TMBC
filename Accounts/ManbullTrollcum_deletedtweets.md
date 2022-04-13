@@ -1,6 +1,6 @@
-## Archived tweets for ManbullTrollcum
+## Deleted tweets for ManbullTrollcum
 
-The list below includes 0 archived tweets by
+The list below includes 0 deleted tweets by
 [ManbullTrollcum](https://twitter.com/ManbullTrollcum).
 
 
